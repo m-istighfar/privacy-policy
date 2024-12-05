@@ -1,4 +1,4 @@
-*Privacy Policy for [App Name]*
+*Privacy Policy for Mintee*
 
 *Last Updated: December 5, 2024*
 
